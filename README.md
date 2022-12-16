@@ -1,8 +1,3 @@
-# Experium-leak
+Ez leak
 
-
-
-Im leaving anarchy, so I figured that I would leak the clients I have access too.
-
-
-Idk if this clients latest version got leaked but here we are.
+_3000IQPlay#8278 go kys
